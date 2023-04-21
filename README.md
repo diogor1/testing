@@ -11,4 +11,4 @@ my work na analytics with power BI
 ###### again
 
 
-https://1drv.ms/i/s!AktniJbxyMkDlSzqW5glDkyo6Ncp?e=Ua2X1f
+![Screenshot (2)](https://user-images.githubusercontent.com/30722736/233641037-18fad706-7a01-4360-9d02-1e58213b4e4b.png)
